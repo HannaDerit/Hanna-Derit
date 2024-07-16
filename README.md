@@ -3,4 +3,3 @@
 
 "Name:" Hanna L. Derit
 "Email:" hannaderitapril222002gmail.com
-"LinkedIn:" 
