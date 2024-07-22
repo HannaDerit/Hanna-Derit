@@ -1,5 +1,7 @@
 # Hanna-Derit
 ## Personal Details
 
-"Name:" Hanna L. Derit
-"Email:" hannaderitapril222002gmail.com
+Hanna L. Derit
+hannaderitapril222002gmail.com
+22 years old
+San Lorenzo, Bibincahan, Sorsogon City
